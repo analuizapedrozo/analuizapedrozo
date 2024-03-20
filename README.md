@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yori
-- 👀 I’m interested in games
+- 👀 I’m interested in jogos
 - 🌱 I’m currently learning nada
 - 💞️ I’m looking to collaborate on sla
 - 📫 How to reach sla tbm
